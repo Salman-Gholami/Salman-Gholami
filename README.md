@@ -72,8 +72,6 @@ The best way to reach me is by filling out the contact form on [siteeman.com](ht
 
 ---
 
-## فارسی  
-
 # سلمان غلامی  👋
 ## توسعه‌دهنده وردپرس و طراح وب  
 
